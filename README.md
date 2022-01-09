@@ -16,3 +16,7 @@ There are unique little .txt files in the repositories, which explain you its ca
      (='.'=)
      (")_(")
 *have a nice bunny*
+
+
+This project is not as good as it could be, but I love and appreciate it)
+There are may even be some mistakes) Don't be judgers, lol
